@@ -26,9 +26,9 @@ all employees should be made aware of which stance is officially supported by th
 
 Here is how they are incompatible
 1. Non-Racists think both White Supremacy and Neo-Racist/Anti-Racist are racist ideologies,
-because they both support judging people by the color of their skin rather than the content of their character.
+because both those other ideas support judging people by the color of their skin rather than the content of their character.
 2. White supremacists are opposed to both Non-Racists and Neo-Racist/Anti-Racist,
-because they both oppose preferential treatment of whites over blacks
+because both those other ideas oppose preferential treatment of whites over blacks
 3. Neo-Racist/Anti-Racist are opposed to both Non-Racists and White Supremacists,
-because they both oppose preferential treatment of blacks over whites
+because both those other ideas oppose preferential treatment of blacks over whites
 
